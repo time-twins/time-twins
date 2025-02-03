@@ -1,8 +1,9 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/b0b56e1b4de086cc82ccc071da921dfb/92bee5c6b1c30a44-76/s640x960/0e8bff3d5244f33047dd3208d7fca88f16f94611.gifv">
+<img src="https://media1.tenor.com/m/yskd5z_9N9IAAAAd/acronix-ninjago.gif">
 </p>
 
 <p align="center">
+  <img src="https://64.media.tumblr.com/7753ceae4da6566509ce59ad0e3e683a/27fb99c293a0a832-9b/s1280x1920/ef332137c81edbe4caab3a2d1505c7e019399d7f.pnj">
 basic dni criteria ok bye
 </p>
 <p align="center">
