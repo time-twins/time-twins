@@ -1,6 +1,4 @@
-<p align="center">
-<img src="https://64.media.tumblr.com/8d02f679ea0999da028f56d04de9c869/0670a0f651b96bcd-01/s640x960/a05752e45373fe2612e21ec4801b8a6714f78efc.gifv">
-</p>
+<img src="https://64.media.tumblr.com/b0b56e1b4de086cc82ccc071da921dfb/92bee5c6b1c30a44-76/s640x960/0e8bff3d5244f33047dd3208d7fca88f16f94611.gifv">
 <p align="center">
 basic dni criteria ok bye
 </p>
