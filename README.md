@@ -10,4 +10,4 @@ basic dni criteria ok bye
 uhhh links !! :
 </p>
 
-                  [patreon](https://www.patreon.com/c/ermtadek) , [pronouns.cc](https://pronouns.cc/@morroix) , [ata](https://ekkosis.atabook.org/) , [strawpage](https://ekkosis.straw.page/) , [rentry](https://rentry.co/morroix) , [DNI list/hj](https://rentry.co/NarratorFightClubTylerDurden) , 
+                  [patreon](https://www.patreon.com/c/ermtadek) , [pronouns.cc](https://pronouns.cc/@morroix) , [ata](https://time-twins.atabook.org/) , [strawpage](https://ekkosis.straw.page/) , [rentry](https://rentry.co/morroix) , [DNI list/hj](https://rentry.co/NarratorFightClubTylerDurden) , 
