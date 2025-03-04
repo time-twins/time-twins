@@ -10,4 +10,4 @@ basic dni criteria ok bye
 uhhh links !! :
 </p>
 
-                  [pronouns.cc](https://pronouns.cc/@morroix) , [ata](https://time-twins.atabook.org/) , [strawpage](https://timetwins.straw.page/) , [rentry](https://rentry.co/morroix)  , [carrd](https://time-twins.carrd.co/)
+                  [pronouns.cc](https://pronouns.cc/@morroix) , [ata](https://time-twins.atabook.org/)  , [rentry](https://rentry.co/morroix)  , [carrd](https://time-twins.carrd.co/)
