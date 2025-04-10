@@ -10,4 +10,4 @@ basic dni criteria ok bye
 uhhh links !! :
 </p>
 
-                  [pronouns.cc](https://pronouns.cc/@morroix) , [ata](https://time-twins.atabook.org/)  , [carrd](https://time-twins.carrd.co/)  , [new better strawpage](https://timetwins.straw.page/)
+                  [pronouns.cc](https://pronouns.cc/@morroix) , [atabook](https://time-twins.atabook.org/)  , [carrd](https://time-twins.carrd.co/)  , [new better strawpage](https://timetwins.straw.page/)
